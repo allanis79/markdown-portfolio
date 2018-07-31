@@ -1,0 +1,4 @@
+- the alchemist
+- zero to one 
+    - steve jobs
+    - Intelligent Investor
